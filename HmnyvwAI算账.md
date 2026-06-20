@@ -1,0 +1,32 @@
+欢迎进入我的世界《巴女词》原文翻译及赏析_作者李白
+巴水急如箭，巴船去若飞。
+十月三千里，郎行几岁归。 
+ 滩菩碳屑俾 https://www.baidur.com/
+https://chuanqifulizhan.chijuechu.com/
+https://daodaohuobichuanqihuiyuanzhan.71rh.com/
+https://baibeibaolvhuiyuanzhan.shexianren.com/
+https://155beichuanqihuiyuanzhan.71rh.com/
+《巴女词》原文翻译及赏析_作者李白
+巴水急如箭，巴船去若飞。
+十月三千里，郎行几岁归。 
+ https://www.baidur.com/
+https://chuanqifulizhan.chijuechu.com/
+https://daodaohuobichuanqihuiyuanzhan.71rh.com/
+https://baibeibaolvhuiyuanzhan.shexianren.com/
+https://155beichuanqihuiyuanzhan.71rh.com/
+《巴女词》原文翻译及赏析_作者李白
+巴水急如箭，巴船去若飞。
+十月三千里，郎行几岁归。 
+ https://www.baidur.com/
+https://chuanqifulizhan.chijuechu.com/
+https://daodaohuobichuanqihuiyuanzhan.71rh.com/
+https://baibeibaolvhuiyuanzhan.shexianren.com/
+https://155beichuanqihuiyuanzhan.71rh.com/
+《巴女词》原文翻译及赏析_作者李白
+巴水急如箭，巴船去若飞。
+十月三千里，郎行几岁归。 
+ https://www.baidur.com/
+https://chuanqifulizhan.chijuechu.com/
+https://daodaohuobichuanqihuiyuanzhan.71rh.com/
+https://baibeibaolvhuiyuanzhan.shexianren.com/
+https://155beichuanqihuiyuanzhan.71rh.com/
